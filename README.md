@@ -259,12 +259,21 @@ Total: 0/15
 ✰ Do not remove. ✰
 
 🔬Jinsei Wakahisa: Jinsei is the OC I've had for the longest time (4-5 years, he's my BOY) who is a 26 year old college student studying to become a doctor. He might be that or something related to entomology, idk, make up your mind Jinsei. He's dating my twin's OC, Corey.
+
 😰Julia Woodrow: Julia is a not so normal 17 year old whos shadow has been possessed by a shadow demon. She was pretty normal until a demon set his sights on her. Now she's gone from popular, funny, and happy kid to an unpopular, sad, and introverted teen. (I sort of based her off of myself, who was a popular and happy kid but has become a sad nobody. Her being possessed by a demon that ruined her life is like a parallel to how my physical and mental illnesses have ruined my life.)
+
 😈Erebus: Erebus is the said shadow demon mentioned earlier. He's kinda like Peter Pan's shadow in a sense, except he's evil. He gets his power from feeding off of negative energy, so his main goal is to make Julia's life a living hell. He preys on her mental illness and pushes her to the brink emotionally and messes with her so she's always on edge and gets to to the point she eventually explodes, which pushes everyone away that would have a chance to help her.
+
 🕶Nick, 🗑Tyler, and 🌈Penny: I created these OCs basically just as a way to make fun shenanigans with OCs. They don't really have a backstory or plot line, but I've developed them all a lot and I love them a whole bunch. Tyler and Penny are dating while Nick thinks romance is for nerds.
+
 💗Candy:
+
 🎸Grey, 🎮Kelly, and ⚡️Harper: These three are my newest OCs who are all high schoolers in a band. In the band Grey plays the bass, while Kelly uses the drums, with Harper as the guitarist. Normal high school drama is common among this group of friends. Kelly has an obvious crush on Grey, while Harper is Grey's ex-girlfriend. You'd assume this may lead to problems but Harper totally ships Kelly and Grey.
+
 🔮Guenevere:
+
 😼Loredana: Loredana used to be an evil witch who was planning on hurting the nearby village, which led to Guinevere turning her into a cat to stop her. Loredana now loiters around Guenevere's cottage to annoy her and also get cared for (Guenevere feels bad about having to turn Loredana into a cat).
+
 🔍Peter:
+
 ✄ ‐ ‑ ‐ ‑ ‐ ‑ ‑ END CUT ‐ ‑ ‐ ‑ ‐ ‑ ‐ ‑
